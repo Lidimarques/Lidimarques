@@ -1,4 +1,24 @@
-### Hi there 👋
+### # "😀OI"
+MEU NOME É LIDIANE, SOU BRASILEIRA, TRABALHO COMO TEC. DE SEGURANÇA DO TRABALHO.
+
+
+## "QUANTO MAIS EU SEI,MAIS EU APRENDO😉"
+
+## 🎓CURSOS 
+
+"PROGRAMAÇÃO" 
+"GESTÃO E EMPREGABILIDADE"
+"GESTÃO DE PROJETOS E APLICATIVOS DE IMPACTO"
+"PROGRAMAÇÃO COM APP INVENTOR""
+FOTOGRAFIA"
+"MECÂNICA DE CICLO OTTO" 
+
+## IDIOMAS
+"ESPANHOL"
+
+
+## EMAIL
+"LIDIANEMARQUES1915@HOTMAIL.COM Hi there 👋
 
 <!--
 **Lidimarques/Lidimarques** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
