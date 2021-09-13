@@ -1,3 +1,4 @@
+![natureza maravilhosa linda](https://user-images.githubusercontent.com/89882230/133125555-79949c17-0a97-4617-9c1f-428b04b81528.gif)
 ### # "😀OI"
 MEU NOME É LIDIANE, SOU BRASILEIRA, TRABALHO COMO TEC. DE SEGURANÇA DO TRABALHO.
 
@@ -15,7 +16,6 @@ FOTOGRAFIA"
 
 ## IDIOMAS
 "ESPANHOL"
-![natureza maravilhosa linda](https://user-images.githubusercontent.com/89882230/133125555-79949c17-0a97-4617-9c1f-428b04b81528.gif)
 
 ## EMAIL
 "LIDIANEMARQUES1915@HOTMAIL.COM Hi there 👋
