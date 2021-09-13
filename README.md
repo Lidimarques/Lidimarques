@@ -23,6 +23,7 @@ MEU NOME É LIDIANE, SOU BRASILEIRA, TRABALHO COMO TEC. DE SEGURANÇA DO TRABALH
 
 ## EMAIL
 "LIDIANEMARQUES1915@HOTMAIL.COM Hi there 👋
+
 https://github.com
 <!--
 **Lidimarques/Lidimarques** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
